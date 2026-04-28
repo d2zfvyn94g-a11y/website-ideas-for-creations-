@@ -1,1 +1,1 @@
-# website-ideas-for-creations-
+# website-ideas-for-buyers
